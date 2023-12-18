@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **Augustyabhushan04@gmail.com**
 
-- ⚡ Fun fact **I am an avid hiker**
+- ⚡ Fun fact, **I am an avid hiker**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
